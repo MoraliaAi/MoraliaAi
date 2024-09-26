@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MoraliaAi
+- 👀 I’m interested in helping others grow. 
+- 🌱 I’m currently learning how to use coding software.
+- 💞️ I’m looking to collaborate
